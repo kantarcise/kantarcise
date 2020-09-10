@@ -3,7 +3,7 @@
 ## I'm a R&D Engineer, Developer and Bookworm!
 
 - 🔭 I’m currently working on a Object Detection App!
-- 🌱 I’m currently learning everything 🤣
+- 🌱 I’m currently learning Java, Python.
 - 🥅 2020 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love coloring and play the Nay
 
