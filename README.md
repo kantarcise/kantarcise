@@ -2,7 +2,7 @@
 
 ## I'm an Engineer, Bodybuilder and Bookworm!
 
-- 🔭 I’m currently working on a Object Detection App!
+- 🔭 I’m currently working on a Photo Filter App!
 - 🌱 I’m currently learning Python.
 - 🥅 2020 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love coloring and play the Nay
