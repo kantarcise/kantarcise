@@ -6,7 +6,7 @@
 - 🌱 I’m currently learning Game Design.
 - 🥅 2021 Goals: Document everything I make.
 - ⚡ Fun fact: I love coloring and play the Nay
-- ✏️ Another Fun Fact: I started writing on Medium at October 26, 2020.
+- ✏️ Another Fun Fact: I started writing on [Medium](https://sezaiburakkantarci.medium.com/) at October 26, 2020.
 
 <br />
 
