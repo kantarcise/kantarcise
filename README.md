@@ -1,6 +1,6 @@
 ### Hi there, I'm Sezai Burak 👋
 
-## I'm an Engineer, Powerlifter and Bookworm!
+## I'm an Engineer, Powerlifter and Writer!
 
 - 🔭 I’m currently working on a Computer Vision Product!
 - 🌱 I’m learning Game Design with %120 curiosity (literally cannot be stopped 😉).
