@@ -1,4 +1,4 @@
-### Hi there, I'm Sezai Burak 👋
+### Hi there 👋
 
 # I'm incredibly curious.
 
