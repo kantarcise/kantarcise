@@ -6,6 +6,7 @@
 
 - 🔭 I’m currently working on a AI Pipeline called **"Sheaf"** !
 - 🌱 I’m learning Game Design with %120 curiosity (literally cannot be stopped 😉).
+- :closed_book: Reading [Atomic Habits](https://www.amazon.com/Atomic-Habits-Proven-Build-Break/dp/0735211299) from [James](https://jamesclear.com/) at the moment :eyes: .
 - 🌠 2022 Goals: Become an operator of Content Distribution - Focus on [Permissionless Leverage](https://gradually.co/wp-content/uploads/2020/11/GD29-Intro-1024x539.png) . 
 - 🥅 2021 Goals: Document everything I make. Why ? Because it saves ***time and energy*** - [Microsoft](https://www.microsoft.com/en-us/microsoft-365/business-insights-ideas/resources/why-process-documentation-is-crucial-to-your-business) - [Atlassian](https://www.atlassian.com/work-management/documentation/importance-of-documentation).
 - ⚡ Fun fact: I love coloring and play the Nay
