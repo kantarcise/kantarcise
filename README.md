@@ -5,7 +5,7 @@
 ### I'm also a Designer, Engineer and Writer!
 
 - 🔭 I’m currently working on a AI Pipeline called **"Sheaf"** !
-- 🌱 I’m learning Product Design with %120 curiosity (literally cannot be stopped 😉).
+- 🌱 I’m learning making a Grand Slam Offer with %120 curiosity (literally cannot be stopped 😉).
 - :closed_book: Reading [$100M Offers](https://www.amazon.com/100M-Offers-People-Stupid-Saying-ebook/dp/B099QVG1H8) from [Alex Hormozi](https://www.youtube.com/@AlexHormozi) at the moment :eyes: .
 - :thought_balloon: 2023 Goals: [Give more than I take.](https://youtu.be/Bs3bGo1vWOs?t=4413)
 - 🌠 2022 Goals: Become an operator of [Content Distribution](https://www.garyvaynerchuk.com/the-garyvee-content-strategy-how-to-grow-and-distribute-your-brands-social-media-content/) - Focus on [Permissionless Leverage](https://uploads-ssl.webflow.com/5f4c1c4bc17267761b21d253/5fb4419bfc914f793f1717bf_6-leverage-o-matic.png) . 
