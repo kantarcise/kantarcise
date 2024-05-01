@@ -4,8 +4,8 @@
 
 ### I'm also a Designer, Engineer and Writer!
 
-- 🔭 I’m currently working on a AI Pipeline called **"Sheaf"** !
-- 🌱 I’m learning making a Grand Slam Offer with %120 curiosity (literally cannot be stopped 😉).
+- 🔭 I’m currently working on **"Sheaf"** !
+- 🌱 I’m learning how to lead.
 - :closed_book: Rereading [$100M Offers](https://www.amazon.com/100M-Offers-People-Stupid-Saying-ebook/dp/B099QVG1H8) from [Alex Hormozi](https://www.youtube.com/@AlexHormozi) at the moment :eyes: .
 - 🌌 2024 Goals: [Chasing the "Impossible"](https://www.youtube.com/shorts/g4J63BEOwz4) - Lift others as you [rise.](https://raw.githubusercontent.com/kantarcise/notebook/master/Success/Spirit/liftothersasyourise.jpg)
 - 💭 2023 Goals: [Give more than I take.](https://youtu.be/Bs3bGo1vWOs?t=4413)
