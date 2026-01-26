@@ -7,6 +7,7 @@
 - 🔭 I’m currently working on **"Sheaf"** !
 - 🌱 I’m learning how to lead.
 - :closed_book: Rereading [$100M Offers](https://www.amazon.com/100M-Offers-People-Stupid-Saying-ebook/dp/B099QVG1H8) from [Alex Hormozi](https://www.youtube.com/@AlexHormozi) at the moment :eyes: .
+- ☀️ 2026 Goals: I'll become artıculate because [that's a moral endeavor](https://youtu.be/6y_X8IBoG5Y?t=591). To speak well is to carry truth responsibly.
 - ⛵ 2025 Goals: Give up all the other worlds [except the one to which you belong.](https://onbeing.org/poetry/sweet-darkness/) So, I will do good, [no matter what.](https://www.youtube.com/shorts/ERz_6q-t6NA)
 - 🌌 2024 Goals: [Chasing the "Impossible"](https://www.youtube.com/shorts/g4J63BEOwz4) - Lift others as you [rise.](https://raw.githubusercontent.com/kantarcise/notebook/master/Success/Spirit/liftothersasyourise.jpg)
 - 💭 2023 Goals: [Give more than I take.](https://youtu.be/Bs3bGo1vWOs?t=4413)
